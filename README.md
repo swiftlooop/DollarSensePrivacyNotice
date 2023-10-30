@@ -1,8 +1,3 @@
-
-Download OurList for Free!
- 
-Beautiful shared shopping lists for families
-ADS BY FLYCRICKET
 Dollar Sense Privacy Policy
 Andrea Negri built the Dollar Sense app as a Free app. This SERVICE is provided by Andrea Negri at no cost and is intended for use as is.
 
